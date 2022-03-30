@@ -4,9 +4,11 @@
 - 💞️ I’m looking to collaborate on 🍆
 - 📫 How to reach me you don't
 
+(╯°□°）╯︵ ┻━┻ 
+
+_(:зゝ∠)_ _(∠ゝз:)_
 
 I'm a Trader u kinky 🛒
-
 
 <!---
 SvenIAF91/SvenIAF91 is a ✨✨ special ✨✨ repository because its `README.md` (this file) appears on your GitHub profile.
