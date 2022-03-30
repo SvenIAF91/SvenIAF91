@@ -1,8 +1,12 @@
 - 👋 Hi, I’m @SvenIAF91
-- 👀 I’m interested in 👀
+- 👀 I’m interested in 🍑
 - 🌱 I’m currently learning how to breath
-- 💞️ I’m looking to collaborate on 💞️
+- 💞️ I’m looking to collaborate on 🍆
 - 📫 How to reach me you don't
+
+
+I'm a Trader u kinky 🛒
+
 
 <!---
 SvenIAF91/SvenIAF91 is a ✨✨ special ✨✨ repository because its `README.md` (this file) appears on your GitHub profile.
